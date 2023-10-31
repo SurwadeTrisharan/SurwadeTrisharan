@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @SurwadeTrisharan
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning
-- 😎 
+- 😎🙂🙂No🙅🏻 One Can Defeat🤨 You, Until You Defeat Yourself👤.
 
 
 <!---
